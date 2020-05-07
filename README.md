@@ -5,3 +5,4 @@
 **yes**
 
 - it has lots of good games
+- it is great for party games and activities
