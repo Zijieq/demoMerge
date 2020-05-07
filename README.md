@@ -6,3 +6,4 @@
 
 - it has lots of good games
 - it is great for party games and activities
+- great for someone who is a big fan of Nintendo
